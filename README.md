@@ -19,5 +19,5 @@ Atualmente estou focado em:
 
 Além de programação, eu gosto de:
 - Brincar  com minha Filha passar tempo de qualidade com a minha familia
-- As vezes jogat um Video Game  kkk (Fifa )
+- As vezes jogar um Video Game  kkk (Fifa )
 
